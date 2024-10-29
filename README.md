@@ -38,6 +38,6 @@ Another upside of these post-it page markers is that they come in an assortment 
 
 ## Annotating is for Yourself
 
-Especially for those with more perfectionistic tendencies, it can feel unnerving not having a standard for “good” annotating. But it helps to remember that no one is going to judge your annotations since they are not for anyone but yourself. What you choose to highlight, comment on, or mark up depends on what you want to remember and what feels important to you. 
+Especially for those with more perfectionistic tendencies, it can feel unnerving not having a standard for “good” annotating. But it helps to remember that no one is going to judge your annotations since they are not for anyone but yourself. What you choose to highlight, comment on, or mark up depends on what you want to remember and what feels important to ***you***. 
 
 So don’t take your annotations too seriously. At the end of the day, annotating is just another way of enriching your reading experience by keeping you engaged and helping you remember. 
