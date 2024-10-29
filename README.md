@@ -1,6 +1,6 @@
 # How to Annotate Your Books So You Can Engage More Deeply With Your Reading
 
-! [pile of books!](https://images.unsplash.com/photo-1521056787327-165dc2a32836?q=80&w=2650&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
+![pile of books!](https://images.unsplash.com/photo-1521056787327-165dc2a32836?q=80&w=2650&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
 
 I remember being in eighth grade and my English teacher required the class to annotate the novel we were going through as one of our assignments. As a perfectionist, I remember feeling overwhelmed and unsure about where to start. I wanted to make sure I was doing everything right, whether that was highlighting the right quotes or writing the most genius insight about a certain passage. But the whole process ended up being so stressful that I didn’t return to annotating my books until I entered college. 
 
