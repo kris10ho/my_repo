@@ -1,6 +1,6 @@
 # How to Annotate Your Books So You Can Engage More Deeply With Your Reading
 
-[https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com%2FPost-Markers-Assorted-Fluorescent-670-5AF%2Fdp%2FB00006JNML&psig=AOvVaw28HXPsso0It0YRhoJpjE15&ust=1730257693105000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKD9o6zOsokDFQAAAAAdAAAAABAI![image](https://github.com/user-attachments/assets/006e6f94-27b0-4b93-a5e7-7248795fee98)](https://images.unsplash.com/photo-1521056787327-165dc2a32836?q=80&w=2650&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)![image](https://github.com/user-attachments/assets/4c4f3a44-7ccf-468d-b873-584a6b7421ec)
+! [pile of books!](https://images.unsplash.com/photo-1521056787327-165dc2a32836?q=80&w=2650&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
 
 I remember being in eighth grade and my English teacher required the class to annotate the novel we were going through as one of our assignments. As a perfectionist, I remember feeling overwhelmed and unsure about where to start. I wanted to make sure I was doing everything right, whether that was highlighting the right quotes or writing the most genius insight about a certain passage. But the whole process ended up being so stressful that I didn’t return to annotating my books until I entered college. 
 
@@ -22,9 +22,9 @@ One of the advantages of annotating is actively engaging with a text and trackin
 
 ### Use Post-It Page Markers
 
-If you are afraid of writing in your books, consider writing on post-its instead. These post-it page markers are perfect for making small annotations when you find a quote, passage, or section in the text you want to quickly return to for future reference. In addition, their size affords you the space to write more extensive notes than if you were to simply write in the margins, but doesn’t take up so much space that half the page is covered and not visible.   
+If you are afraid of writing in your books, consider writing on post-its instead. These [post-it page markers](https://www.amazon.com/Post-Markers-Assorted-Fluorescent-670-5AF/dp/B00006JNML) are perfect for making small annotations when you find a quote, passage, or section in the text you want to quickly return to for future reference. In addition, their size affords you the space to write more extensive notes than if you were to simply write in the margins, but doesn’t take up so much space that half the page is covered and not visible.   
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com%2FPost-Markers-Assorted-Fluorescent-670-5AF%2Fdp%2FB00006JNML&psig=AOvVaw28HXPsso0It0YRhoJpjE15&ust=1730257693105000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJDq1szOsokDFQAAAAAdAAAAABAE![image](https://github.com/user-attachments/assets/0dc692d8-186d-4457-ab17-095a33d9b359)
+![post-it markers!](https://m.media-amazon.com/images/I/71HQ8TOlz6L._AC_UF894,1000_QL80_.jpg)
 
 ### Create a Color Coded System 
 
