@@ -16,7 +16,7 @@ Annotating is all about personal preference. There is no one “right” way to 
 
 ### Write Something that Stood Out to You
 
-One of the advantages of annotating is actively engaging with a text and tracking your thought process. Even if it is for a silly reason, it helps to write on your post-it why you wanted to mark that passage instead of simply just sticking it on the page. For example, I recently reread Pride and Prejudice and when the Gardiners make their first appearance in the novel, I wrote on my marker, “Finally! A suitable match!” Even something as simple as that helps my future self recall why that particular passage stood out to me in the first place. 
+One of the advantages of annotating is actively engaging with a text and tracking your thought process. Even if it is for a silly reason, it helps to write on your post-it why you wanted to mark that passage instead of simply just sticking it on the page. For example, I recently reread ***Pride and Prejudice*** and when the Gardiners make their first appearance in the novel, I wrote on my marker, “Finally! A suitable match!” Even something as simple as that helps my future self recall why that particular passage stood out to me in the first place. 
 
 ## How to Annotate Your Books 
 
